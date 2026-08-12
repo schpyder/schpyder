@@ -10,6 +10,7 @@
 
 
 <div align="center">
-<img width="500" height="500" alt="G4ZAO6xXMAAnLiZ" src="https://github.com/user-attachments/assets/4bf89d44-acd8-4381-8598-152e107e23bc" />
+<img width="500" height="500" alt="GzR2_7GaoAAPK0h" src="https://github.com/user-attachments/assets/0b10623a-f3ff-472b-a1c8-3ed7b31e4d6c" />
 
-dats nawwttt my emperor yo
+  dats nawwttt my emperor yo
+
