@@ -10,7 +10,9 @@
 
 
 <div align="center">
-<img width="600" height="600" alt="Untitled98_20260822201522" src="https://github.com/user-attachments/assets/b494c432-b306-4420-8c50-dec256124253" />
+
+ <img width="500" height="500" alt="Untitled98_20260822203637" src="https://github.com/user-attachments/assets/5d9a6d5f-030c-443a-bd8e-760ccbf5c99e" />
+
 
  «  ᴀᴄ   : @wispsire  »
   
